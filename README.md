@@ -4,4 +4,5 @@
 
 <p align="center">✦</p>
 <p align="center">Hi there!!!!!!!! I'm Malkuth! You probably got here from Pony Town, so here's some info!! :D </p>
-<p align="center">You'll always find me in the safe server under the log near the Roblox area unless im hanging out with friends, but even then I'm usually at the same spot! I'm usually cosplaying a character from Project Moon, Touhou, or occassionally a character from something else or an OC!!</p>
+<p align="center">You'll always find me in the safe server under the log near the Roblox area unless im hanging out with friends, but even then I'm usually at the same spot!</p>
+<p align="center">I'll usually be cosplaying a character from Project Moon, Touhou, or occassionally a character from something else or an OC!!!</p>
