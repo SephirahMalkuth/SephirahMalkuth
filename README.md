@@ -4,5 +4,5 @@
 
 <p align="center">✦</p>
 <p align="center">Malkuth / Satono || They/It</p>
-<p align="center">Hyperfixated on Project Moon, Touhou, and Dandy's World.</p>
-<p align="center">NOTE: I am VERY bad at social interaction. If you are to interact with me, be aware of that.</p>
+<p align="center">Hyperfixated on Project Moon, Touhou, and Dandy's World</p>
+<p align="center">NOTE: I am VERY bad at social interaction!!! If you are to interact with me, PLEASE be aware of that</p>
