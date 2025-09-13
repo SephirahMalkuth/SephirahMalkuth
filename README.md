@@ -8,4 +8,4 @@
 <p align="center">I AM A MINOR!!! DO NOT BE WEIRD PLEASE I BEG</p>
 <p align="center">NOTE: I am VERY bad at social interaction!!! If you are to interact with me, PLEASE be aware of that. For example, if you talk to me or whisper me I am extremely likely to not respond.</p>
 
-![](https://komarev.com/ghpvc/?username=sephirahmalkuth&color=ff85d3&label=Gifted+Employees&style=plastic)
+![](https://komarev.com/ghpvc/?username=sephirahmalkuth&color=ff85d3&label=💗&style=plastic)
