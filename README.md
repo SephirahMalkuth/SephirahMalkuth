@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.ibb.co/VWSc0LyS/banner-2-tv.png" alt="banner-2-tv"></p>
+<p align="center"><img src="https://i.ibb.co/VWSc0LyS/banner-2-tv.png"></p>
 
 <p align="center"><code style>"A bullet was fired, a magic bullet that would never miss."</p>
 
