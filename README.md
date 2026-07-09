@@ -1,6 +1,6 @@
 <p align="center"><img src="https://i.ibb.co/VWSc0LyS/banner-2-tv.png"></p>
 
-<p align="center"><code style>"A bullet was fired, a magic bullet that would never miss."</p>
+<p align="center"><code style>"The longer I stare at her, the more it hurts. How can she twinkle so brightly after all this time?"</p>
 
 <p align="center">✦</p>
 <p align="center">Malkuth / QoH || It/They preferred</p>
