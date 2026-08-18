@@ -3,7 +3,7 @@
 <p align="center"><code style>"It really is as you say; this is a magic bullet that will never miss."</p>
 
 <p align="center">✦</p>
-<p align="center">Malkuth / QoH || It/They preferred</p>
+<p align="center">hi im malkuth || it/they preferred</p>
 <p align="center">Very normal about Project Moon, Umamusume, Touhou, and a LOT of other stuff!!!</p>
 <p align="center">I AM A MINOR!!! if you are weird towards me you will. be instantly vaporized into a fine powder</p>
 <p align="center">On Pony Town, I am VERY bad at social interaction with people I don't know!!! If you are to interact with me, PLEASE be aware of that. For example, if you talk to me or whisper me I am likely to not respond, but I <i>will</i> see it!!!. Also, don't be scared to send me a friend request. You can, you don't have to ask me! Just know there is the possibility of me declining it.</p>
