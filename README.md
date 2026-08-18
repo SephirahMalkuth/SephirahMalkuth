@@ -1,6 +1,7 @@
 <p align="center"><img src="https://i.ibb.co/VWSc0LyS/banner-2-tv.png"></p>
 
 <p align="center"><code style>"Yes, I know. It's unfortunate. Pitiful and sad. I do feel human emotions, thank you very much."</p>
+  
 <p align="center">✦</p>
 <p align="center">hi im malkuth || it/they preferred</p>
 <p align="center">Very normal about Project Moon, Umamusume, Touhou, Cookie Run, and a LOT of other stuff!!!</p>
