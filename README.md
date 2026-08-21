@@ -7,6 +7,7 @@
 <p align="center">Very normal about Project Moon, Umamusume, Touhou, Cookie Run, and a LOT of other stuff!!!</p>
 <p align="center">I AM A MINOR!!! if you are weird towards me you will. be instantly vaporized into a fine powder</p>
 <p align="center">On Pony Town, I am VERY bad at social interaction with people I don't know!!! If you are to interact with me, PLEASE be aware of that. For example, if you talk to me or whisper me I am likely to not respond, but I <i>will</i> see it!!!. Also, don't be scared to send me a friend request. You can, you don't have to ask me! Just know there is the possibility of me declining it.</p>
+<p align="center">You can usually find me sitting around as Sunlight Bouquet Mayano Top Gun, Der Freischütz, or Tenshi Hinanawi! or straight up just some other character lmfao</p>
 
 ![](https://komarev.com/ghpvc/?username=sephirahmalkuth&color=ff85d3&label=💗&style=plastic)
 
